@@ -1,1 +1,0 @@
-# Daily Trading Notes
